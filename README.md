@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RodneyLane8
+- 👀 I’m interested in mountain climbing and programming
+- 🌱 I’m currently learning multi programming languages
+- 📫 How to reach me Rodneylane8@gmal.com
